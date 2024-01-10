@@ -15,4 +15,3 @@ These are the basic login credentials, Try your Own Account Registration
 This website is a free college project for students!
 Your support can help me to grow and improve. Please consider donating.
 
-Donate me on UPI : ajeswin0@oksbi
